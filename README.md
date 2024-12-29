@@ -1,0 +1,6 @@
+# 共识,众筹,生态,泰山,独角兽,通天塔,燃烧完美重生模式
+
+链上，不要拿那种app手动充值给我对比！<br>是dapp项目，非dapp去中心化项目<br>支持波场trc20，让盘面逼格大大提高，高端玩家必备<br>模式新颖，提高存活，支持OTC交易，重生，重生<br>采用智能和共享三进一出全新模式，<br>没参与一期需要10%参与<br>每一期增长30%众享额度<br>首期期1000U<br>第二期1300U<br>第三期1690U<br>第四期2197U…………<br>倒数第三期退50%本金给双倍<br>倒数第二期退50%本金给双倍<br>倒数一期全部退本<br>倒数一期众筹不成功7天之内<br>重新开始从首期循环（100u，上限不超过每期共享2%）<br>每个人参与都需要金本位10%的作为燃料销毁，<br>提现燃烧销毁5%的，<br>会员越来越多需求量越来越大，势在币涨备注：倒数第1-3期视为爆仓，<br>倒数首期退还全部本金，<br>倒数第二，三期退还50%本金，<br>①静态收益12%，每期收益12%，这个百分比也需要后台可以设定<br>②分享奖励12%example.com%example.com%备注：<br>分享奖励拿：<br>example.com%<br>example.com<br>复投一次拿一次，<br>③团队管理奖4%V1:20个有效账户，总业绩2万u，<br>每期投资额1%V2:50个有效账户，总业绩5万u，<br>example.com%V3:100个有效账户，总业绩10万u，<br>每期投资额2%V4:200个有效账户，总业绩30万u，<br>example.com%V5:500个有效账户，总业绩80万u，<br>每期投资额3%V6:1000个有效账户，总业绩200万u，<br>example.com%V7:2024个有效账户，总业绩500万u，<br>每期投资额4%<br>奖金制度的所有百分比，需要在后台留有设置，后台可以更改参数。提现手续费也需要能在后台设置<br>具体玩法可咨询卖家<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/5naPn" style="color: red;">https://mega-file.org/5naPn</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
